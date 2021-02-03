@@ -11,6 +11,6 @@
 
 ***Just-A-Minute:*** Click [here](https://docs.google.com/forms/d/e/1FAIpQLSc5MlEoev9Kx-hOWGC7p_aOmHLEZv1CclufQpBO4Ji1RMoeOA/viewform?usp=sf_link) to register yourself for this event.
 
-***Picture Composition:*** Click [here](https://docs.google.com/forms/d/e/1FAIpQLSdWXd58PUlRqcruNqxFO9U2WK21rlBIcb14JR1p9c1xQrpnQg/viewform?usp=sf_link) to register yourself for this event.
-
 ***Conventional Debate:*** Click [here](https://docs.google.com/forms/d/e/1FAIpQLScCfAFHj-kkIWYArzqYXVVu0s9IOu5VDxYTsGOx1H2GUXt-XA/viewform?usp=sf_link) to register yourself for this event.
+
+***Picture Description (Reverse Pictionary):*** Click [here](https://docs.google.com/forms/d/e/1FAIpQLSdWXd58PUlRqcruNqxFO9U2WK21rlBIcb14JR1p9c1xQrpnQg/viewform?usp=sf_link) to register yourself for this event.
