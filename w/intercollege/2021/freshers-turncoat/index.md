@@ -1,4 +1,4 @@
-## Inter-College Freshers Turncoat 2021 🎉🎙️
+## Inter-College Freshers' Turncoat 2021 🎉🎙️
 
 **NOTE:** This is an inter-college event, open ONLY to _first-year_ students of DU.
 
