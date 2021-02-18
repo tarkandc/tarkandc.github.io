@@ -20,5 +20,5 @@
 
 ----
 
-***Turncoat:*** Click [here](https://docs.google.com/forms/d/e/) to register yourself for this event.
+***Turncoat:*** Click [here](https://docs.google.com/forms/d/e/1FAIpQLSes650MdfpAtp_37KPB6ri1rM-ggyAUrDb0oF1fqCUiOdyy3Q/viewform?usp=sf_link) to register yourself for this event.
 
