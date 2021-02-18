@@ -4,4 +4,5 @@ Welcome to the website of TARK, the debating society of _**Acharya Narendra Dev 
 
 ## Links
 
+ * [Inter-college Freshers' Turncoat 2021](w/intercollege/2021/freshers-turncoat)
  * [Aagman 2021 registrations](/w/aagman/2021)
